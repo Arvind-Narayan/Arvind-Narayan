@@ -1,0 +1,1 @@
+Hi I'm Arvind, founder at [Eikos](https://eikosdata.com/), co-founder at [The Gen Academy](https://www.thegenacademy.com/)
